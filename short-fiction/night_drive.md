@@ -11,3 +11,5 @@
 - headlights pull up behind them and they are panicking and screaming
 - someone knocks on window and starts screaming "look at me"
 - they are full of abject terror when suddenly blue and red lights start flashing and they realize it's a cop trying to help them
+
+--- above written July 17, 2016 ---
