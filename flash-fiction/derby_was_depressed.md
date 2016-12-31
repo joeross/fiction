@@ -1,6 +1,6 @@
 The shade was not cool. Derby breathed slowly, rationing his exhalations in case the heat choked him again. It was not thinking weather. It was not launching weather. 
 
-But when someone gives you a spaceship, it's rude not to use it. That's the worst bit: doing something for someone else that was their idea, that scares the hell out of you, that people for generations will praise you for having done.
+But when someone gives you a spaceship, it's rude not to use it. That's the worst bit: doing something for someone else that was their idea, that scares the hell out of you, that people for generations will praise you for having done even though you didn't want to do it. 
 
 Derby was being triple-checked by the flight prep crew on a hot Tarmac, summer swelter making the craft ripple like a stone-thrown lake in the distance. Its monstrous shadow did nothing to cool the situation, and its hulking mass made Derby uneasy. 
 
