@@ -1,0 +1,1 @@
+Saint Brendan's University is a Jesuit educational institution situated in the center of a triangle whose points are Philadelphia, Scranton and Harrisburg, Pennsylvania. It is well-known for its psychology department, which routinely produces Ivy League graduate students.
