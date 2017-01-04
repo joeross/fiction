@@ -1,3 +1,3 @@
 Saint Brendan's University is a Jesuit educational institution situated in the center of a triangle whose points are Philadelphia, Scranton and Harrisburg, Pennsylvania. It is well-known for its psychology department, which routinely produces Ivy League graduate students.
 
-It is also home to a small club of literature students who often sit in on psychology class sessions to steer the conversation toward literary theory and away from psychology itself. 
+The campus is green the way stock photos of outdoor team-building exercises are green. Half of the buildings are made of massive old bricks hewn from local rock and known by binomial phrases ending in "Hall" or "Dormitory." The rest are new construction with entire facades of glass, severe angles and crass hypersyllabic names starting with "Center" or "Institute." 
