@@ -16,4 +16,8 @@ He had a small scar in the middle of his forehead from an unfortunate childhood 
 
 "Dr. Philson. Okay. Doc. I have anxiety, as you know." Sorry had sunk so low in his chair that it was hard for Philson not to take it personally, and he was taking it pretty personally.
 
-"So I'm told, Sorry, yes." 
+"So I'm told, Sorry, yes."
+
+"Okay well I was basically treating my anxiety and trying to relax and just calm down when the Resident Assistant knocked on my door." Sorry was examining a stock photograph poster of a multi-ethnic group of college-aged people smiling, high fiving and jumping, captioned MAKE CHALLENGES OPPORTUNITIES.
+
+"I know that, too. I read the disciplinary report and I spoke to, to Dean Baxter." William Baxter was a personal nemesis of Dr. Philson's, the latter having lost out to the former by only two grade point average points when the two were mere students at Saint Brendan's. The wince and shudder Baxter's name induced in Philson [at the precise moment in the statement at the beginning of this paragraph where the comma is, between the two instances of 'to'] demonstrated how little two decades had done to soften the blow to his ego.
