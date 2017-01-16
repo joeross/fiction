@@ -1,6 +1,6 @@
 # Chapter One
 
-"It's uncomfortable, being called out on your own pretensions and your own bullshit. It's not normal, it doesn't happen to most of us most of the time. If you can get good at it, just middling good, not very good or great, you have a distinct advantage. You aren't good at it, Sorry."
+"It's uncomfortable, being called out on your own pretensions and your own bullshit. It's not normal, it doesn't happen to most of us most of the time. If you can get good at it, just middling good, not even very good or great, you have a distinct advantage. You aren't good at it, Sorry."
 
 Dr. Philson had spoken with Soren Bailey on three previous occasions as part of the eighteen-year-old's mandatory disciplinary probation. Saint Brendan's University had tried to expel Soren for a minor violation of the disciplinary code but failed. Soren himself believed this to be the result of his cleverly quoting certain passages from the University Disciplinary Manual which suggested his due process rights had been stomped on by his summary expulsion. In fact, it was the intercession of Soren's psychology professor, a good friend of Robert Philson's, which kept Sorry enrolled at the school.
 
@@ -22,4 +22,4 @@ He had a small scar in the middle of his forehead from an unfortunate childhood 
 
 "I know that, too. I read the disciplinary report and I spoke to, to Dean Baxter." William Baxter was a personal nemesis of Dr. Philson's, the latter having lost out to the former by only two grade point average points when the two were students at Saint Brendan's. The wince and shudder Baxter's name induced in Philson [at the precise moment in the statement at the beginning of this paragraph where the comma is, between the two instances of 'to'] demonstrated how little two decades had done to soften the blow to his ego.
 
-"Okay okay okay but what you definitely *don't* know because the report doesn't name the RA in question."
+"Okay okay okay but what you definitely *don't* know because the report doesn't name the RA in question is that it was the RA's girlfriend who's also an RA but in the womens' dorm which means she didn't even have jurisdiction to check on me."
